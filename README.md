@@ -33,7 +33,8 @@ Therefore, if you are looking for the best proxies for web scraping, I would hig
 
 
 
-https://discord.gg/BTzCaghJ3Y
+ We invite you to join this exclusive Telegram group: [Capsolver Chat](https://t.me/CapSolverChat). Upon joining, kindly contact the group administrator to receive complimentary account credit.
+
 
 
 
